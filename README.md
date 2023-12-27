@@ -1,4 +1,4 @@
-### Hi there 👋
+### Not a genius or anything, here to make the everyday ordinary into something unmundane!
 
 <!--
 **Jacob-Chanht/Jacob-Chanht** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
